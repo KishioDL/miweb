@@ -1,2 +1,0 @@
-pendejo triste
-pendejo troste
